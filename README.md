@@ -7,7 +7,7 @@ I would make a strawpage, but I'm too lazy to do so...
 
 。★.𖥔 *__PRNS__* :
 ⤷
-Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its/it) ... I wouldn't pay no mind to it!
+Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its/it) ... I couldn't careless !
 
 。★.𖥔 *__What i usually do__* :
 - ✦ *Hang out / talking w/ friends*
@@ -37,4 +37,5 @@ Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its
 [prns.page](https://en.pronouns.page/@Xe.mn0) . ⠀ ִ  ࣪   ׅ  𐔌ㅤ[atabook](d0zing.atabook.org)
 
 ![Alt text](https://ik.imagekit.io/22tifjcqh/Untitled250_20251006121902.png)
+
 
