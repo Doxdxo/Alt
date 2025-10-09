@@ -1,7 +1,7 @@
 ⠀ ִ  ࣪   ׅ  𐔌ㅤ **Go For A Perfect?**
 
 .𖥔 Hellooo ! ⚠︎ This is important, please read before interacting. ⚠︎ [ More Info in prns.page ]
-I would make a strawpage, but I'm too lazy to do so...
+I would make a strawpage, but I'm too lazy to do so... i'm also bad at english but let's be aware that not everyone's first language is English
 
 .𖥔 Lets start off simple , my name is Xen, but idm being called as the charac im cosplaying as ! Nicknames are fine as well, but please ask for my consent !
 
@@ -19,15 +19,15 @@ Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its
 
 。★.𖥔 ***DNI*** ⚠︎ :
 - ⚠︎ **Pedophiles** ⤷ To be clear, i am a ***MINOR***. Find someone the same as your age.
-- ⚠︎ **Racists** ⤷ Why so pressed over a skintone brochacho ...
-- ⚠︎ **Ageplayers** ⤷ Grow up.
-- ⚠︎ **Toxic Ppl** ⤷ Self Explanatory `Being mean as a joke is an exception!`
-- ⚠︎ **Proshippers** ⤷ ?...
-- ⚠︎ **Homophobics** ⤷ Oh noo two girls kissing oh noo
+- ⚠︎ **Racists**
+- ⚠︎ **Ageplayers**
+- ⚠︎ **Toxic Ppl** ⤷ `Being mean as a joke is an exception!`
+- ⚠︎ **Proshippers**
+- ⚠︎ **Homophobics**
 - ⚠︎ **Roleplayers** ⤷ I really don't mind seeing ppl rp, but I don't want to engage in to those, im sorry.
 - ⚠︎ and the rest of the **Basic DNI**
 
-⚠︎ Also, idrc who and what you ship, i really don't care about any characters relationships *(unless necessary/apart of the lore).* Just PLEASE be respectful to others ships and don't be weird about it.
+⚠︎ Also, idrc who and what you ship, idgaf about shipping & ships. Just PLEASE be respectful to others ships/don't force it to them into liking it, and don't be weird about it.
 
 。★.𖥔 **This is still in wip. please wait patiently for more info.**
 
@@ -42,6 +42,7 @@ Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its
 
 
 ![Alt text](https://ik.imagekit.io/22tifjcqh/Untitled250_20251006121902.png)
+
 
 
 
