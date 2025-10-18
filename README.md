@@ -63,7 +63,8 @@ Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its
 
 
 
-creds to @sh4rkle on Tiktok / Instagram / Twitter !
+ALL OF THE COOL ARTS BELONG TO @sh4rkle ON TIKTOK / INSTAGRAM / TWITTER !
+
 
 
 
