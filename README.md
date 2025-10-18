@@ -64,4 +64,5 @@ Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its
 
 
 
-from @sh4rkle on Tiktok / Instagram / Twitter !!
+creds to @sh4rkle on Tiktok / Instagram / Twitter !
+
