@@ -1,9 +1,11 @@
 ⠀ ִ  ࣪   ׅ  𐔌ㅤ **Go For A Perfect?**
 
-.𖥔 Hellooo ! ⚠︎ This is important, please read before interacting. ⚠︎ [ More Info in prns.page ]
-I would make a strawpage, but I'm too lazy to do so... i'm also bad at english but let's be aware that not everyone's first language is English
+.𖥔 、Hellooo ! ⚠︎ This is important, please read before interacting. ⚠︎ [ More Info in prns.page ]
+I would make a strawpage, but I'm too lazy to do so... i'm also bad at english but let's be aware that not everyone's first language is English.
 
-.𖥔 Lets start off simple , my name is Xen, but idm being called as the charac im cosplaying as ! Nicknames are fine as well, but please ask for my consent !
+.𖥔 Before we start , yes my bio IS targetted and directed to somebody. But I wouldn't bother providing more info. NEVER. AGAIN. am i dealing with her... attitude.
+
+.𖥔 Back to introduction , my name is Xen, but idm being called as the charac im cosplaying as ! Nicknames are fine as well, but please ask for my consent !
 
 .𖥔 Being on Busy stats on pt doesn't mean I'm not open for cuds + hide, so please come and hug with the homeless... ⤷ me ... i also wouldn't mind if you cud with me when i'm sitting w/ friends! :D But uh iwc if they're on dni ^-^'
 
@@ -64,6 +66,7 @@ Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its
 
 
 ALL OF THE COOL ARTS BELONG TO @sh4rkle ON TIKTOK / INSTAGRAM / TWITTER !
+
 
 
 
