@@ -38,7 +38,7 @@ Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its
 
 [prns.page](https://en.pronouns.page/@Xe.mn0) . ⠀ ִ  ࣪   ׅ  𐔌ㅤ[atabook](https://d0zing.atabook.org/)
 
-![Alt text for the GIF](https://ik.imagekit.io/22tifjcqh/vhk6nj.gif) ![Alt text for the GIF](https://ik.imagekit.io/22tifjcqh/6v2ges.gif) ![Alt text for the GIF](https://ik.imagekit.io/22tifjcqh/llgdmt.gif) ![Alt text](https://ik.imagekit.io/22tifjcqh/lovesick.webp) ![Alt text](https://ik.imagekit.io/22tifjcqh/cvju04.gif) ![Alt text](https://ik.imagekit.io/22tifjcqh/puz5wr.gif) ![Alt text](https://ik.imagekit.io/22tifjcqh/pu1y5m.gif) ![Alt text](https://ik.imagekit.io/22tifjcqh/bphyme.gif) ![h](https://ik.imagekit.io/22tifjcqh/jxkkf5.gif)
+![Alt text for the GIF](https://ik.imagekit.io/22tifjcqh/vhk6nj.gif) ![Alt text for the GIF](https://ik.imagekit.io/22tifjcqh/6v2ges.gif) ![Alt text for the GIF](https://ik.imagekit.io/22tifjcqh/llgdmt.gif) ![Alt text](https://ik.imagekit.io/22tifjcqh/lovesick.webp) ![Alt text](https://ik.imagekit.io/22tifjcqh/cvju04.gif) ![Alt text](https://ik.imagekit.io/22tifjcqh/sxpn4n.gif) ![h](https://ik.imagekit.io/22tifjcqh/jxkkf5.gif)
 
 
 
@@ -64,6 +64,7 @@ Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its
 
 
 ALL OF THE COOL ARTS BELONG TO @sh4rkle ON TIKTOK / INSTAGRAM / TWITTER !
+
 
 
 
