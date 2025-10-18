@@ -43,7 +43,8 @@ Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its
 
 
 
-![Alt text](https://ik.imagekit.io/22tifjcqh/Untitled256_20251018160105.png?updatedAt=1760774524251)
+![Alt text](https://ik.imagekit.io/22tifjcqh/Untitled256_20251018160342.png)
+
 
 
 
