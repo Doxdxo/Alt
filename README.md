@@ -25,6 +25,7 @@ Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its
 - ⚠︎ **Pedophiles** ⤷ To be clear, i am a ***MINOR***. Find someone the same as your age.
 - ⚠︎ **Racists**
 - ⚠︎ **Ageplayers**
+- ⚠︎ **Shdz** HEAVILY dni.
 - ⚠︎ `Being mean as a joke is an exception!`
 - ⚠︎ **Proshippers**
 - ⚠︎ **Homophobics**
@@ -66,6 +67,7 @@ Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its
 
 
 ALL OF THE COOL ARTS BELONG TO @sh4rkle ON TIKTOK / INSTAGRAM / TWITTER !
+
 
 
 
