@@ -1,5 +1,4 @@
-![Alt text](https://ik.imagekit.io/22tifjcqh/output-onlinegiftools%20(1).gif)
-
+![Alt text for the GIF](https://ik.imagekit.io/22tifjcqh/output-onlinegiftools%20(1).gif)
 
 ⠀ ִ  ࣪   ׅ  𐔌ㅤ **Go For A Perfect?**
 
@@ -72,6 +71,7 @@ Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its
 
 
 ALL OF THE COOL ARTS BELONG TO @sh4rkle ON TIKTOK / INSTAGRAM / TWITTER !
+
 
 
 
