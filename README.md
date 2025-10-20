@@ -26,15 +26,13 @@ Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its
 - ✦ *Listening to music*
 
 。★.𖥔 ***DNI*** ⚠︎ :
-- ⚠︎ **Pedophiles** ⤷ To be clear, i am a ***MINOR***. Find someone the same as your age.
-- ⚠︎ **Racists**
 - ⚠︎ **Ageplayers**
-- ⚠︎ **Shdz** HEAVILY dni.
-- ⚠︎ `Being mean as a joke is an exception!`
+- ⚠︎ **Shdz** heavily DNI & DND.
+- ⚠︎ **THOSE** ":3" PEOPLE `ex. "oops i did it again! :3"` yk what I'm talking about. Please, if you don't want help, don't talk to me about it.
+- ⚠︎ Being mean as a joke is an exception btw :D
 - ⚠︎ **Proshippers**
-- ⚠︎ **Homophobics**
 - ⚠︎ **Roleplayers** ⤷ I really don't mind seeing ppl rp, but I don't want to engage in to those, im sorry.
-- ⚠︎ and the rest of the **Basic DNI**
+- ⚠︎ **Basic DNI**
 
 ⚠︎ Also, idrc who and what you ship, idgaf about shipping & ships. Just PLEASE be respectful to others ships/don't force urs to them into liking it, and don't be weird about it.
 
@@ -71,6 +69,7 @@ Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its
 
 
 ALL OF THE COOL ARTS BELONG TO @sh4rkle ON TIKTOK / INSTAGRAM / TWITTER !
+
 
 
 
