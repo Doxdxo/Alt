@@ -5,7 +5,7 @@
 .𖥔 、Hellooo ! ⚠︎ This is important, please read before interacting. ⚠︎ [ More Info in prns.page ]
 I would make a strawpage, but I'm too lazy to do so... i'm also bad at english but let's be aware that not everyone's first language is English.
 
-.𖥔 Before we start , yes my stats IS targetted and directed to somebody. But I wouldn't bother providing more info. NEVER. AGAIN. am i dealing with her... attitude. Shdz if you're seeing this, STOP mentioning me in your bio, we've officially cut ties. I left you alone, i didn't mention you on anything, nor did i allude to you. Only wrote this because of the things you've mentioned on your bio. i am NOT letting that slide. Do not include me in your life, and I'll respectfully do the same. Also if you WERE gonna apologize, you would've not use vulgar words at me. "fuck you xen" to "I change my mind I'm not apologizing anymore." don't make me laugh at a hypocrite.
+.𖥔 Before we start , yes my stats IS targetted and directed to somebody. But I wouldn't bother providing more info. NEVER. AGAIN. am i dealing with her... attitude. Shdz if you're seeing this, STOP mentioning me in your bio, we've officially cut ties. I left you alone, i didn't mention you on anything, nor did i allude to you. Only wrote this because of the things you've mentioned on your bio. i am NOT letting that slide. Do not include me in your life, and I'll respectfully do the same. Also if you WERE gonna apologize, you would've not use vulgar words at me. "fuck you xen" to "I change my mind I'm not apologizing anymore." don't make me laugh at a hypocrite's words.
 
 .𖥔 Back to introduction , my name is Xen, but idm being called as the charac im cosplaying as ! Nicknames are fine as well, but please ask for my consent !
 
@@ -71,6 +71,7 @@ Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its
 
 
 ALL OF THE COOL ARTS BELONG TO @sh4rkle ON TIKTOK / INSTAGRAM / TWITTER !
+
 
 
 
