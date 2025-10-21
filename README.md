@@ -5,13 +5,13 @@
 .𖥔 、Hellooo ! ⚠︎ This is important, please read before interacting. ⚠︎ [ More Info in prns.page ]
 I would make a strawpage, but I'm too lazy to do so... i'm also bad at english but let's be aware that not everyone's first language is English.
 
-.𖥔 Before we start , yes my stats IS targetted and directed. I was hesitating and deciding wether to mention your name or not but you directly mentioned mine. so mind you, I'll be doing the same as well. Shdz if you're seeing this, STOP mentioning me in your bio, we've officially cut ties. I left you alone, i didn't mention you on anything, nor did i allude to you. Only wrote this because of the things you've mentioned on your bio. i am NOT letting that slide. Do not include me in your life, and I'll respectfully do the same. Also if you were suppose to apologize, you would've not use vulgar words at me. "fuck you xen" to "I change my mind I'm not apologizing anymore." ?? don't make me laugh at a hypocrite's words. you're only making this worse for the both of us. mainly for YOU. keeping this up won't make anything better between us, tell this to your sister as well. I'm not removing these until you cooperate, I don't want to hear your insufferable whining.
+.𖥔 Before we start , yes my stats IS targetted and directed. I was hesitating and deciding wether to mention your name or not but you directly mentioned mine. so mind you, I'll be doing the same as well. Shdz if you're seeing this, STOP mentioning me in your bio, we've officially cut ties. I left you alone, i didn't mention you on anything, nor did i allude to you. Only wrote this because of the things you've mentioned on your bio. i am NOT letting that slide. Do not include me in your life, and I'll respectfully do the same. Also if you were suppose to apologize, you would've not use vulgar words at me. "fuck you xen" to "I change my mind I'm not apologizing anymore."..? don't make me laugh at a hypocrite's words. you're only making this worse for the both of us. mainly for YOU. keeping this up won't make anything better between us, tell this to your sister as well. I'm not removing these until you cooperate, I don't want to hear your insufferable whining.
 
 .𖥔 Back to introduction , my name is Xen, but idm being called as the charac im cosplaying as ! Nicknames are fine as well, but please ask for my consent !
 
 .𖥔 Being on Busy stats on pt doesn't mean I'm not open for cuds + hide, and even if c+h is not stated on my name ! so please come and hug with the cool guy... i also wouldn't mind if you cud with me while i'm sitting w/ my friends! :D But uh before you do, please whisper me and iwc if they're on dni ^-^'
 
-.𖥔 Do not directly copy my horses , i hold grudges for a very long time. Inspo is fine, but ask for permission please !
+.𖥔 Do not directly copy my skinsy , i hold grudges for a very long time. Inspo is fine, but ask for permission please !
 
 。★.𖥔 *__PRNS__* :
 ⤷
@@ -69,6 +69,7 @@ Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its
 
 
 ALL OF THE COOL ARTS BELONG TO @sh4rkle ON TIKTOK / INSTAGRAM / TWITTER !
+
 
 
 
