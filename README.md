@@ -9,9 +9,8 @@ I would make a strawpage, but I'm too lazy to do so... i'm also bad at english b
 
 .𖥔 Being on Busy stats on pt doesn't mean I'm not open for cuds + hide, and even if c+h is not stated on my name ! so please come and hug with the cool guy... i also wouldn't mind if you cud with me while i'm sitting w/ my friends! :D But uh before you do, please whisper me and iwc if they're on dni ^-^'
 
-.𖥔 Do not directly copy my skinsy , i hold grudges for a very long time. Inspo is fine, but ask for permission please !
+.𖥔 Do not directly copy my skins , i hold grudges for a very long time. Inspo is fine, but ask for permission please !
 
-![Alt text](https://ik.imagekit.io/22tifjcqh/output-onlinegiftools%20(3).gif)
 
 。★.𖥔 *__PRNS__* :
 ⤷
@@ -25,7 +24,7 @@ Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its
 - ★ Sleeping
 - ✦ *Listening to music*
 
-![Alt text](https://ik.imagekit.io/22tifjcqh/G34YY77WcAAky0E-unscreen.gif)
+![Alt text](https://ik.imagekit.io/22tifjcqh/output-onlinegiftools%20(2).gif)
 
 。★.𖥔 ***DNI*** ⚠︎ :
 - ⚠︎ **Ageplayers**
@@ -48,7 +47,7 @@ Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its
 
 
 
-![Alt text](https://ik.imagekit.io/22tifjcqh/output-onlinegiftools%20(2).gif) ![Alt text](https://ik.imagekit.io/22tifjcqh/output-onlinegiftools%20(3).gif)
+![Alt text](https://ik.imagekit.io/22tifjcqh/G34YY77WcAAky0E-unscreen.gif)
 
 
 
@@ -71,6 +70,7 @@ Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its
 
 
 ALL OF THE COOL ARTS BELONG TO @sh4rkle ON TIKTOK / INSTAGRAM / TWITTER !
+
 
 
 
