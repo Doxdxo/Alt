@@ -25,7 +25,7 @@ Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its
 - ★ Sleeping
 - ✦ *Listening to music*
 
-![Alt text](https://ik.imagekit.io/22tifjcqh/output-onlinegiftools.gif)
+![Alt text](https://ik.imagekit.io/22tifjcqh/G34YY77WcAAky0E-unscreen.gif)
 
 。★.𖥔 ***DNI*** ⚠︎ :
 - ⚠︎ **Ageplayers**
@@ -71,6 +71,7 @@ Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its
 
 
 ALL OF THE COOL ARTS BELONG TO @sh4rkle ON TIKTOK / INSTAGRAM / TWITTER !
+
 
 
 
