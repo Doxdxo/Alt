@@ -31,10 +31,11 @@ Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its
 ![Alt text](https://ik.imagekit.io/22tifjcqh/output-onlinegiftools%20(2).gif)
 
 。★.𖥔 ***DNI*** ⚠︎ :
-- ⚠︎ **Ageplayers**
+- ⚠︎ **Agepl#yers**
 - ⚠︎ **THOSE** ":3" PEOPLE the uh `"oops i did it again! :3"` type of people.. yk what I'm talking about... Please, if you don't want help, don't talk to me about it.
 - ⚠︎ Being mean as a joke is an exception btw :D
-- ⚠︎ **Proshippers**
+- ⚠︎ **Pr#shippers**
+- ⚠︎ **D#rkshippers**
 - ⚠︎ **Roleplayers** ⤷ I really don't mind seeing ppl rp, but I don't want to engage in to those, im sorry.
 - ⚠︎ **Basic DNI**
 
@@ -74,6 +75,7 @@ Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its
 
 
 ALL OF THE COOL ARTS BELONG TO @sh4rkle ON TIKTOK / INSTAGRAM / TWITTER !
+
 
 
 
