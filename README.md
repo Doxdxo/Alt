@@ -11,7 +11,7 @@ I would make a strawpage, but I'm too lazy to do so... i'm also bad at english b
 
 .𖥔 Being on Busy stats on pt doesn't mean I'm not open for cuds + hide, and even if c+h is not stated on my name ! so please come and hug with the cool guy... i also wouldn't mind if you cud with me while i'm sitting w/ my friends! :D But uh before you do, please whisper me and iwc if they're on dni ^-^'
 
-.𖥔 Want to be friends..? DM ME IN DISCORD!!!; _fae.xeno. 
+.𖥔 Want to be friends..? DM ME IN DISCORD!!!; @_fae.xeno. 
 
 .𖥔 Do not directly copy my skins , i hold grudges for a very long time. Inspo is fine, but ask for permission please !
 
@@ -74,6 +74,7 @@ Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its
 
 
 ALL OF THE COOL ARTS BELONG TO @sh4rkle ON TIKTOK / INSTAGRAM / TWITTER !
+
 
 
 
