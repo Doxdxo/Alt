@@ -75,7 +75,8 @@ Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its
 
 
 ALL OF THE COOL ARTS BELONG TO @sh4rkle ON TIKTOK / INSTAGRAM / TWITTER !
-alt account yayy: @PurestVessell
+alt account yayy: [@PurestVessell](https://github.com/PurestVessell)
+
 
 
 
