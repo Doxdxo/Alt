@@ -2,6 +2,10 @@ ${\color{#850000}\text{⊱  ۫ ׅ.}}{\color{#560002}\text{✧ U}}{\color{#8E0002
 
 ${\color{#850000}\text{⊱  ۫ ׅ.}}{\color{#560002}\text{✧ BEST BEST}}{\color{#8E0002}\text{VIEWED ON}}{\color{#BF0000}\text{PC MODE ╱ DESKTOP SITE}}{\color{#E30000}\text{i am terribly}}{\color{#FF0000}\text{sorry for the}}{\color{#FF4646}\text{mobile}}{\color{#FF9C8B}\text{users}}$
 
+${\color{#AE000B}\text{Oh and }}$
+${\color{#FF4646}\text{uhh refresh this}}{\color{#FF9C8B}\text{page if the texts}}$
+${\color{#FFC0B9}\text{looks off, they're suppose to be coloured}}$
+
 ![Alt text](https://ik.imagekit.io/22tifjcqh/Untitled2_20251031184334.png)
 
 ![Alt text](https://ik.imagekit.io/22tifjcqh/Untitled2_20251031161616.png)
@@ -29,4 +33,5 @@ ${\color{#AE000B}\text{Do not directly copy}}{\color{#FF9C8B}\text{my skins,}}{\
 ![Alt text](https://ik.imagekit.io/22tifjcqh/Untitled18_20251031171754.png)
 
 ![Alt text](https://ik.imagekit.io/22tifjcqh/Untitled2_20251031175734.png)
+
 
