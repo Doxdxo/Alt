@@ -24,7 +24,17 @@ ${\color{#FF9C8B}\text{They/Them is most preferred thoughh!!}}$
 
 ![Alt text](https://ik.imagekit.io/22tifjcqh/Untitled2_20251031175530.png)
 
-${\color{#AE000B}\text{Do not directly copy}}{\color{#FF9C8B}\text{my skins,}}{\color{#FFC0B9}\text{I wouldn't mind much}}{\color{#FF9C8B}\text{about inspo,}}{\color{#AE000B}\text{but pls ask for permission!}}$
+${\color{#AE000B}\text{Do not directly copy}}{\color{#FF9C8B}\text{my skins,}}{\color{#FFC0B9}\text{I wouldn't mind much}}$
+${\color{#FF9C8B}\text{about inspo,}}{\color{#AE000B}\text{but pls ask for permission!}}$
+
+${\color{#AE000B}\text{i also wouldn't}}$
+${\color{#FF4646}\text{mind ships and allat!}}{\color{#FF9C8B}\text{(unless it's a proship/darkship, etc.)}}$
+${\color{#FFC0B9}\text{But just PLEASE Do NOT}}$
+${\color{#FFC0B9}\text{NOT be weird about it I'm}}$
+${\color{#FF9C8B}\text{begging you.}}{\color{#FF4646}\text{Respectfully dni if you ship pairs that are totally not}}$
+${\color{#AE000B}\text{blood-related or even one is older than the other and etc. please.. stay away. More dni info in}}$
+
+${\color{#AE000B}\text{my prns page}}$
 
 ![Alt text](https://ik.imagekit.io/22tifjcqh/Untitled2_20251031192202.png)
 
@@ -33,5 +43,6 @@ ${\color{#AE000B}\text{Do not directly copy}}{\color{#FF9C8B}\text{my skins,}}{\
 ![Alt text](https://ik.imagekit.io/22tifjcqh/Untitled18_20251031171754.png)
 
 ![Alt text](https://ik.imagekit.io/22tifjcqh/Untitled2_20251031175734.png)
+
 
 
