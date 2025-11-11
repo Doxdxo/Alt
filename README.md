@@ -8,7 +8,7 @@ ${\color{#AE000B}\text{Oh and }}$
 ${\color{#FF4646}\text{uhh refresh this}}{\color{#FF9C8B}\text{page if the texts}}$
 ${\color{#FFC0B9}\text{looks off, they're suppose to be coloured}}$
 
-![prigirlms](https://komarev.com/ghpvc/?username=Doxdxo&color=a30000&label=⋆˚࿔Pilgrims)
+![prigirlms](https://komarev.com/ghpvc/?username=Doxdxo&color=a30000&label=𝗣IL𝗚RI𝗠S)
 
 ![Alt text](https://ik.imagekit.io/22tifjcqh/Untitled2_20251031192202.png?updatedAt=1761909746313)
 
@@ -48,6 +48,7 @@ ${\color{#AE000B}\text{my prns page}}$
 ![Alt text](https://ik.imagekit.io/22tifjcqh/Untitled18_20251031171754.png)
 
 ![Alt text](https://ik.imagekit.io/22tifjcqh/Untitled2_20251031175734.png)
+
 
 
 
