@@ -1,8 +1,8 @@
-![Alt text](https://ik.imagekit.io/22tifjcqh/Untitled36_20251201141229.png)
 
-⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀![Alt text](https://ik.imagekit.io/22tifjcqh/Untitled35_20251130110031.png)
 
-![Alt text](https://ik.imagekit.io/22tifjcqh/Untitled32_20251130102842.png)
+⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀
+
+
 
 ![Alt text](https://ik.imagekit.io/22tifjcqh/Untitled32_20251130085921.png?updatedAt=1764464401366)
 
@@ -11,10 +11,7 @@
 ⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀ [R](https://rentry.co/7h4wwfiz)${\color{#FFFBEA}\text{entry}}$⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀[A](https://d0zing.atabook.org/)${\color{#FFFBEA}\text{tabook}}$⠀⠀⠀⠀⠀ ⠀⠀⠀⠀[P](https://en.pronouns.page/@Xe.mn0)${\color{#FFFBEA}\text{rns.page}}$
 
 ![Alt text](https://ik.imagekit.io/22tifjcqh/Untitled36_20251201141735.png)
-
-![Alt text](https://ik.imagekit.io/22tifjcqh/Untitled38_20251130123507.png)
-
-![Alt text](https://ik.imagekit.io/22tifjcqh/Untitled32_20251130094850.png)
+![Alt text](https://ik.imagekit.io/22tifjcqh/Untitled36_20251201141229.png)
 
 
 
